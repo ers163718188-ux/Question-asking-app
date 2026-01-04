@@ -27,3 +27,6 @@ I ALL MAKE SURE TO UPDATE IT AFTER EVERY 10 DAYS SO YOU ALL GET NEW QUESTION AFT
 #IMPORTANT:
 (AFTER EVERY 10 DAYS ALL 30 QUESTIONS WILL BE UPDATED)👍🏻
 
+
+# I all learned it from campusx so if you want to learn than check campusx
+
