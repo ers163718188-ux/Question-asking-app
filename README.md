@@ -32,5 +32,5 @@ I WILL MAKE SURE TO UPDATE and IT AFTER EVERY 10 DAYS SO YOU ALL GET NEW QUESTIO
 
 
 #THEY HAVE THEIR OWN WEBSITE ALSO:
-(Campusx https://learnwith.campusx.inCampusX)if this link wont work just search campusx.in or campusx
+([Campusx https://learnwith.campusx.inCampusX](https://www.google.com/url?sa=t&source=web&rct=j&opi=89978449&url=https://learnwith.campusx.in/&ved=2ahUKEwj20-P3rviRAxVHyDgGHbuqPFEQFnoECBEQAQ&usg=AOvVaw3uV8qgO6qtJx1Xm7qGIqeh))if this link wont work just search campusx.in or campusx
 
